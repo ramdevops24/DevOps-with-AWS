@@ -53,7 +53,7 @@
 ## 📫 Connect with Me
 
 - 📧 Email: ramupidikiti24@gmail.com  
-- 💼 [LinkedIn](www.linkedin.com/in/ramu-pidikiti)
+- 💼 [LinkedIn](https://www.linkedin.com/in/ramu-pidikiti/)
 
 
 ---
